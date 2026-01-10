@@ -1,6 +1,6 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=conjhurd&label=doves&color=2b2316" <p/>
 <p align="center"> 
-  <img src= "https://file.garden/Z6s_67Qac2sFHN63/tumblr_f322557d071a6f2477c52a5866979419_7da55029_2048.jpg">
+  <img src= "https://file.garden/Z6s_67Qac2sFHN63/tumblr_f322557d071a6f2477c52a5866979419_7da55029_2048-2-2.jpg">
 
 <h6 align="center">
 Rabbits howl like something
